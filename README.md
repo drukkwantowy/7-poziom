@@ -1,1 +1,2 @@
 # 7-poziom
+„Jak w 7 niebie czy 7 niebo” odnosi się ten cytat do opisu cywilizacji z 7 poziomu w skali kardeszewa. Chodzi o wiedzę duchową i technologiczną która pozwala budować cywilizacje 7 poziomu opierające się o moc magiczną uzyskaną technologicznie. Sztuka w 7 niebie odbiega od realności i nawiązuje do marzeń ludzkich jak i tych co są w ciałach ludzi i pragną podnieść wibracje myśli ludzi. Po czasie odchodzi się od technologii zastępuje ją się mocom która jest w stanie ożywiać zmarłych czy przywracać brakujące części ciała. Nanotechnologia jest nazwana mocną i magią.
